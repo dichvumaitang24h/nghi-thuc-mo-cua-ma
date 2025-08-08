@@ -9,7 +9,7 @@
 # Mở cửa mã là một nghi thức mang tính tâm linh, diễn ra sau khi an táng người mất. Từ “mã” ở đây có nghĩa là ngôi mộ, còn “mở cửa” mang ý nghĩa khai thông, khởi đầu cho hành trình sang thế giới bên kia. Lễ mở cửa mã thường được thực hiện ngay sau khi chôn cất, có thể là vào thời điểm hạ huyệt hoặc sau đó một vài ngày, tùy theo tập tục địa phương hoặc tín ngưỡng của gia đình.
 
 # 
-
+Xem thêm: https://maitanggiangtho.vn/nghi-thuc-mo-cua-ma/
 # Trong một số nơi, mở cửa mã còn gắn với việc đốt đồ mã (vàng mã, vật dụng giấy…) để gửi theo cho người đã khuất, giúp họ có đầy đủ vật chất ở thế giới bên kia.
 
 # 
